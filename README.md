@@ -1,1 +1,0 @@
-# bilgeyade.github.io
